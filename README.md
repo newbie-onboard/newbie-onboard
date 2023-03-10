@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola 👋 I don’t know much coding. Just here for fun! 🫣
 
 <!--
 **newbie-onboard/newbie-onboard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
